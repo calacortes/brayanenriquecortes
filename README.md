@@ -1,2 +1,0 @@
-# brayanenriquecortes
-practica1
